@@ -1,6 +1,6 @@
 ## Hi ✨
 
-I’m a data analyst, striving to build an astonishing, international career in Data<br/>
+I’m a data analyst, striving to build an astonishing, international career in Data ♡<br/>
 
 
 
