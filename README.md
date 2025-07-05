@@ -1,6 +1,6 @@
-## Hi! My name is Romina 🌚✨
+## Hi ✨
 
-♡ I’m a data analyst<br/>
+I’m a data analyst, striving to build an astonishing, international career in Data<br/>
 
 
 ## 🌐 Socials:
